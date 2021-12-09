@@ -9,3 +9,6 @@ Why are we doing this? To honor the memory of my father and hero (Odell Keown), 
 
 We will use methods like mindmaps by Tony Buzan and improved upon by Kam Knight. These loci association to past memories that each person can draw upon to learn and most importantly, retain what they learn. Bascially, the techniques dicussed in the book by Joshua Foer, Moonwalking with Einstein. Jim Kwik's Limitless is a good read as well.  
 
+Regards,
+
+Greg Keown
